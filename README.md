@@ -46,4 +46,4 @@ These Services do not address anyone under the age of 13. I do not knowingly col
 
 
 **Contact Us**
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at g2itsols@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at info@omradating.com.
